@@ -1,37 +1,33 @@
-## Welcome to GitHub Pages
+# Brannigan-Schlie Wedding 2022
 
-You can use the [editor on GitHub](https://github.com/Jouissance-juice/brannigan-schlie_wedding_2022.github.io/edit/gh-pages/README.md) to maintain and preview the content for your website in Markdown files.
+Welcome to our wedding site! From here we have created a place to put announcements and new information for our friends and family! We know a lof of people are coming from out of town so hopefully this will be a place to help you to plan and get ahold of us!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Beverly Mansion
+- https://www.thebeverlymansion.com/
+- 6681 State Route 229 Marengo, OH 43334
+### Mt. Vernon
+- https://goo.gl/maps/aywnEZDnatqW1mQB9
 
-### Markdown
+## Accommodations
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+We are working with a Mt.Vernon Grand Hotel to provide some guaranteed rooms for our out of town guests, which is most of the guests! Currently we are reserving 39 rooms for Saturday (the maximum), and 15 for Friday, but we can reserve more as there becomes a need
 
-```markdown
-Syntax highlighted code block
+### Mt. Vernon Grand Hotel
 
-# Header 1
-## Header 2
-### Header 3
+Lovely Hotel in a lovely town nearby to the Beverly Mansion. 
+- https://www.mountvernongrand.com/
+- Phone: (844) 700-1717
+- Please call and claim one of the rooms which we have reserved by referencing the Brannigan-Schlie wedding when you make your reservation.
 
-- Bulleted
-- List
+### Comfort Inn
+- Contact info
+- https://goo.gl/maps/FecDdsAZ37bGDb1W6
+- +17403926886
+-  We haven't spoken to anyone at the Comfort Inn, but it is located close to the other hotel. We may reach out to them if rooms at the Grand start to sell out
 
-1. Numbered
-2. List
+### Nearby areas:
+If you can, try and stay in Mount Vernon at the Grand Hotel so that we can honor our agreement with management for the number of reserved rooms. In the event that Rooms sell out at the Grand and the Comfort Inn, you can search nearby areas for rooms. Polaris is the furthest away, but should definitely have rooms available nearby, since it is fully in the northern part of Columbus. Lots of shopping nearby, but it is still out of the way. Delaware and Mansfield are both nice towns approximately the same distance from the the Beverly Mansion. 
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Jouissance-juice/brannigan-schlie_wedding_2022.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+- Polaris : https://www.google.com/maps/search/Hotels/@40.1456238,-82.9908124,15z/data=!3m1!4b1!4m8!2m7!3m6!1sHotels!2sPolaris+Fashion+Place,+1500+Polaris+Pkwy,+Columbus,+OH+43240!3s0x8838f54190800c29:0xa9f1bd1cd983f3f7!4m2!1d-82.9820576!2d40.1456242
+- Delaware : https://www.google.com/maps/search/delaware+oh+hotels/@40.2930081,-83.0891278,14z/data=!3m1!4b1
+- Mansfield : https://www.google.com/maps/search/Hotels/@40.7661275,-82.5936791,12z/data=!3m1!4b1
