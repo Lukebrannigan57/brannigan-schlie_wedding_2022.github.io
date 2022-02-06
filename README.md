@@ -1,8 +1,9 @@
 # Brannigan-Schlie Wedding 2022
 
-### Beverly Mansion
-- https://www.thebeverlymansion.com/
+### Beverly Mansion 
+- https://www.thebeverlymansion.com/ 
 - 6681 State Route 229 Marengo, OH 43334
+
 ### Mt. Vernon
 - https://goo.gl/maps/aywnEZDnatqW1mQB9
 
