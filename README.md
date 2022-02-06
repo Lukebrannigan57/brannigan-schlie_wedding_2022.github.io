@@ -1,12 +1,18 @@
 # Brannigan-Schlie Wedding 2022
 
-Welcome to our wedding site! From here we have created a place to put announcements and new information for our friends and family! We know a lof of people are coming from out of town so hopefully this will be a place to help you to plan and get ahold of us!
-
 ### Beverly Mansion
 - https://www.thebeverlymansion.com/
 - 6681 State Route 229 Marengo, OH 43334
 ### Mt. Vernon
 - https://goo.gl/maps/aywnEZDnatqW1mQB9
+
+Welcome to our wedding site! From here we have created a place to put announcements and new information for our friends and family! We know a lof of people are coming from out of town so hopefully this will be a place to help you to plan and get ahold of us!
+
+## Please Provide Your Contact Information!
+
+We are trying to streamline the invitation process as much as possible, and so our strategy is to send out hard copies of the Save-the-Date announcement and electronic invitations. We don't have everyone's info, so if you could please visit this survey and fill out your info, that would help us out a lot! 
+
+https://www.surveymonkey.com/r/5NBR6GN
 
 ## Accommodations
 
