@@ -13,7 +13,7 @@
 
 We are trying to streamline the invitation process as much as possible, and so our strategy is to send out hard copies of the Save-the-Date announcement and electronic invitations. We don't have everyone's info, so if you could please visit this survey and fill out your info, that would help us out a lot! 
 
-https://forms.gle/89jTjq2sajK3rNXZ7
+[Access the Survey Here!](https://forms.gle/89jTjq2sajK3rNXZ7)
 
 ## Accommodations
 
