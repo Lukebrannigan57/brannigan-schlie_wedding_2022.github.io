@@ -20,7 +20,7 @@ We are trying to streamline the invitation process as much as possible. Our stra
 
 ## Accommodations
 
-We recommend getting accommodations in Mt. Vernon. It's about a 15-minute drive from the venue. Plus, it's a super cute town! We are working with The Mount Vernon Grand Hotel to provide some guaranteed rooms for our out-of-town guests, which are basically all of the guests! Currently, we are reserving 39 rooms for Saturday (the maximum) and 15 for Friday, but we can reserve more for Friday as needed. If you can, please try and stay at the Grand Hotel so that we can honor our agreement for reserved rooms. 
+We recommend getting accommodations in Mt. Vernon. It's about a 15-minute drive from the venue. Plus, it's a super cute town! We are working with The Mount Vernon Grand Hotel to provide some guaranteed rooms for our out-of-town guests, which are most of the guests! Currently, we are reserving 39 rooms for Saturday (the maximum) and 15 for Friday, but we can set aside more for Friday as needed. If you can, please try and stay at the Grand Hotel so that we can honor our agreement. 
 
 ### Mt. Vernon Grand Hotel
 
