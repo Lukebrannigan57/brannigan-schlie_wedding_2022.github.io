@@ -1,9 +1,8 @@
 # Brannigan-Schlie Wedding 2022
 
 #### Welcome to our wedding site! This will be the hub for announcements and information for our friends and family. 
-We know a lof of people are coming from out of town,  We are getting married on July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. 
-
-## Check back in the next couple of months for more info about our pre-party and after-party. 
+We know a lof of people are coming from far-away places, so hopefully this will make your trip planning a bit easier. We are getting married on July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. We are planning a pretty awesome party, if we do say so ourselves. Be prepared for lots of dancing, some karaoke, and a few other surprises.  
+And be sure to check back in the next couple of months for more info about our pre-party and after-party! You can make a whole weekend out of celebrating our nuptials :-D
 
 ### Beverly Mansion 
 - [Website for the Beverly Mansion](https://www.thebeverlymansion.com/) 
@@ -14,20 +13,20 @@ We know a lof of people are coming from out of town,  We are getting married on 
 
 ## Please Provide Your Contact Information!
 
-We are trying to streamline the invitation process as much as possible, and so our strategy is to send out hard copies of the Save-the-Date announcement and electronic invitations. We don't have everyone's info, so if you could please visit this survey and fill out your info, that would help us out a lot! 
+We are trying to streamline the invitation process as much as possible. Our strategy is to send out hard copies of the save-the-date announcement followed by virtual invitations. We don't have everyone's info, so if you could please visit this survey and fill out your details, that would help us out a lot! 
 
 [Please enter your info into this form!](https://forms.gle/89jTjq2sajK3rNXZ7)
 
 ## Accommodations
 
-We recommend getting accommodations in Mt. Vernon. It's about a 15-minute drive from the venue. Plus, it's a super cute town! We are working with The Mount Vernon Grand Hotel to provide some guaranteed rooms for our out-of-town guests, which is most of the guests! Currently, we are reserving 39 rooms for Saturday (the maximum) and 15 for Friday, but we can reserve more for Friday as needed. If you can, please try and stay at the Grand Hotel so that we can honor our agreement for reserved rooms. 
+We recommend getting accommodations in Mt. Vernon. It's about a 15-minute drive from the venue. Plus, it's a super cute town! We are working with The Mount Vernon Grand Hotel to provide some guaranteed rooms for our out-of-town guests, which are basically all of the guests! Currently, we are reserving 39 rooms for Saturday (the maximum) and 15 for Friday, but we can reserve more for Friday as needed. If you can, please try and stay at the Grand Hotel so that we can honor our agreement for reserved rooms. 
 
 ### Mt. Vernon Grand Hotel
 
 Lovely hotel in a lovely town not too far from the Beverly Mansion 
 - [Mount Vernon Grand Hotel](https://www.mountvernongrand.com/)
 - Phone: (844) 700-1717
-- Please call and claim one of the rooms which we have reserved by referencing the Brannigan-Schlie wedding when you make your reservation.
+- Please call and claim one of the rooms which we have reserved by referencing the Schlie & Brannigan wedding when you make your reservation.
 - You should receive the discounted rate of $159 for a standard room or $189 for a king suite.
 
 ### Comfort Inn
