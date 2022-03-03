@@ -1,7 +1,7 @@
 # Brannigan-Schlie Wedding 2022
 
 #### Welcome to our wedding site! This will be the hub for announcements and information for our friends and family. 
-We know a lof of people are coming from far-away places, so hopefully this will make your trip planning a bit easier. The wedding is July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. We are putting together a pretty rockin' party, if we do say so ourselves. Be prepared for lots of dancing, a little karaoke, a tiny art project, and a few surprises!
+We know a lof of people are coming from faraway places, so hopefully this will make your trip planning a bit easier. The wedding is July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. We are putting together a pretty rockin' party, if we do say so ourselves. Be prepared for lots of dancing, a little karaoke, a tiny art project, and a few surprises!
 
 #### Be sure to check back in the next couple of months for more info about our pre-party and after-party! You can make a whole weekend out of celebrating our nuptials :-D
 
