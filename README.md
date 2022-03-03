@@ -3,7 +3,7 @@
 #### Welcome to our wedding site! This will be the hub for announcements and information for our friends and family. 
 We know a lof of people are coming from far-away places, so hopefully this will make your trip planning a bit easier. We are getting married on July 23rd, 2022, at the Beverly Mansion in Marengo, Ohio. We are putting together a pretty awesome party, if we do say so ourselves. Be prepared for lots of dancing, some karaoke, an art project, and a few other surprises!
 
-####Be sure to check back in the next couple of months for more info about our pre-party and after-party! You can make a whole weekend out of celebrating our nuptials :-D
+#### Be sure to check back in the next couple of months for more info about our pre-party and after-party! You can make a whole weekend out of celebrating our nuptials :-D
 
 ### Beverly Mansion 
 - [Website for the Beverly Mansion](https://www.thebeverlymansion.com/) 
