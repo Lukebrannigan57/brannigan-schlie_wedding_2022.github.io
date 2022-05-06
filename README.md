@@ -15,7 +15,7 @@ We know a lof of people are coming from faraway places, so hopefully this will m
 ### Welcome Party
 On Friday evening, we'll be hanging out at a pavilion at the Ariel-Foundation Park in Mt. Vernon, which is very close to the town square and The Mount Vernon Grand. Come see us on our last evening as single folk! We'll feed you pizza, sody-pops, and the like, and we'll have some party games on hand. Bring the kiddos!
 
-Friday, July 22, from 5:00 to dusk; Park National Bank Pavilion; N. Madison Ave.; Ariel-Foundation Park; Mt. Vernon, OH 43050
+Friday, July 22, from 5:00 to dusk  Park National Bank Pavilion  N. Madison Ave.  Ariel-Foundation Park  Mt. Vernon, OH 43050
 
 NOTE: Don't type the pavilion name into Google Maps unless you want to end up at the bank in the town square!
 
