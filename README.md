@@ -12,11 +12,12 @@ We know a lof of people are coming from faraway places, so hopefully this will m
 ### Mt. Vernon
 - [Maps link to Mount Vernon](https://goo.gl/maps/aywnEZDnatqW1mQB9)
 
-## Please Provide Your Contact Information!
+### Welcome Party
+On Friday evening, we'll be hanging out at a pavilion at the Ariel-Foundation Park in Mt. Vernon, which is very close to the town square and The Mount Vernon Grand. Come see us on our last evening as single folk! We'll feed you pizza, sody-pops, and the like, and we'll have some party games on hand. Bring the kiddos!
 
-We are trying to streamline the invitation process as much as possible. Our strategy is to send out hard copies of the save-the-date announcement followed by virtual invitations. We don't have everyone's info, so if you could please visit this survey and fill out your details, that would help us out a lot! 
+Friday, July 22, from 5:00 to dusk; Park National Bank Pavilion; N. Madison Ave.; Ariel-Foundation Park; Mt. Vernon, OH 43050
 
-[Please enter your info into this form!](https://forms.gle/89jTjq2sajK3rNXZ7)
+NOTE: Don't type the pavilion name into Google Maps unless you want to end up at the bank in the town square!
 
 ## Accommodations
 
